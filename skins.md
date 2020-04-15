@@ -11,10 +11,6 @@
 ![](https://osu.ppy.sh/ss/14765404/d4c2)
 
 
-# [BeastTrollMC Komori - MC Noel V6](https://mega.nz/#F!NvZnEYwZ!sWhh-2X5wi8vvkzYiZxPcQ)
-![](http://osu.ppy.sh/ss/14765447/bfff)
-
-
 # [WWW 1.8.1](https://mega.nz/#!9mBHlABa!ZiOl1zUdLCYo6Y33fpE38yxje94-paJAa81ZltP5Hvs)
 ![](http://osu.ppy.sh/ss/14765471/d4b9)
 
