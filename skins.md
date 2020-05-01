@@ -2,7 +2,7 @@
 
 # Click the skin name to download
 
-# This GitHub includes Step's most used skin
+# This GitHub includes Step's most used skins
 
 # [osu!default Step Edited](https://drive.google.com/open?id=1yQpzZL38UVU7qybes1pEKZsVIqVFHocE)
 ![](https://osu.ppy.sh/ss/14820688/ec1a)
