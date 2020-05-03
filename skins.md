@@ -4,6 +4,9 @@
 
 # This GitHub includes Step's most used skins
 
+# [- - - Megumin2K -](https://mega.nz/file/Rhk1BAwb#GTNJyBZVzDAgW5DVHUBex1HD_aKhOxu2QE9AAs--tws)
+![](https://osu.ppy.sh/ss/14855926/aedf)
+
 # [osu!default Step Edited](https://drive.google.com/open?id=1yQpzZL38UVU7qybes1pEKZsVIqVFHocE)
 ![](https://osu.ppy.sh/ss/14820688/ec1a)
 
