@@ -2,7 +2,7 @@
 
 # Click the skin name to download
 
-# This GitHub includes Step's most used skins
+# [](https://imgur.com/KAk3UBs)
 
 # [- - - Megumin2K -](https://mega.nz/file/Rhk1BAwb#GTNJyBZVzDAgW5DVHUBex1HD_aKhOxu2QE9AAs--tws)
 ![](https://osu.ppy.sh/ss/14855926/aedf)
