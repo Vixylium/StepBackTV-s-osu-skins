@@ -1,6 +1,6 @@
 # StepBackTV Skins
 
-# Click the skin name to download
+# Click the skin's name to download
 
 # [- - - Megumin2K -](https://mega.nz/file/Rhk1BAwb#GTNJyBZVzDAgW5DVHUBex1HD_aKhOxu2QE9AAs--tws)
 ![](https://osu.ppy.sh/ss/14855926/aedf)
