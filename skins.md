@@ -2,6 +2,10 @@
 
 # Click the skin's name to download
 
+
+# [Jace 6.25](https://www.mediafire.com/file/r4mclu4kgr600n7/Jace_6.25.osk/file)
+![](https://osu.ppy.sh/ss/14953320/7994)
+
 # [- - - Megumin2K -](https://mega.nz/file/Rhk1BAwb#GTNJyBZVzDAgW5DVHUBex1HD_aKhOxu2QE9AAs--tws)
 ![](https://osu.ppy.sh/ss/14855926/aedf)
 
