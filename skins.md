@@ -31,10 +31,6 @@
 ![](http://osu.ppy.sh/ss/14765471/d4b9)
 
 
-# [Karthy 6.0](https://mega.nz/#!wY1mWCZR!tp2kvsc39r128Yuw22MNQgEdJkctXzlX3JRL-saCcck)
-![](http://osu.ppy.sh/ss/14765459/d6e0)
-
-
 # [Fancy Lad](https://www.dropbox.com/s/s4a2kxm4ei85kwy/shigeskin.osk?dl=0)
 ![](http://osu.ppy.sh/ss/14765452/93df)
 
