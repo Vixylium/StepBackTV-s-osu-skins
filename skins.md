@@ -39,10 +39,10 @@
 ![](https://osu.ppy.sh/ss/14765467/44ac)
 
 
-# [mathi rafis’d SPEED (vixylium)](https://mega.nz/#!PL4ikQ7T!tDUhX8vihX9vXj1YKv7yg8-MXpPrc-yxfu_GIzopwa0)
+# [Mathi Vixylium edit](https://mega.nz/#!PL4ikQ7T!tDUhX8vihX9vXj1YKv7yg8-MXpPrc-yxfu_GIzopwa0)
 ![](http://osu.ppy.sh/ss/14765430/974d)
 
 
-# [Yugen SPEED (vixylium)](https://mega.nz/#!mKIQzagQ!uUJ19DwJRV5-ffQ9j3O5_7vAQYzDnnKSVaLTbEwv3eY)
+# [Yugen Vixylium edit)](https://mega.nz/#!mKIQzagQ!uUJ19DwJRV5-ffQ9j3O5_7vAQYzDnnKSVaLTbEwv3eY)
 ![](https://osu.ppy.sh/ss/14765436/07d1)
 
