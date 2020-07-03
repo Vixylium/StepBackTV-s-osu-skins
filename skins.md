@@ -43,6 +43,6 @@
 ![](http://osu.ppy.sh/ss/14765430/974d)
 
 
-# [Yugen Vixylium edit)](https://mega.nz/#!mKIQzagQ!uUJ19DwJRV5-ffQ9j3O5_7vAQYzDnnKSVaLTbEwv3eY)
+# [Yugen Vixylium edit](https://mega.nz/#!mKIQzagQ!uUJ19DwJRV5-ffQ9j3O5_7vAQYzDnnKSVaLTbEwv3eY)
 ![](https://osu.ppy.sh/ss/14765436/07d1)
 
